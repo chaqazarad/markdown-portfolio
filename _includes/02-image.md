@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![EZ](https://cdn.betterttv.net/emote/5590b223b344e2c42a9e28e3/3x)
